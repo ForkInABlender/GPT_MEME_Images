@@ -1,1 +1,1 @@
-![Death afraid to be happy meme](file.webp)
+![Death afraid to be happy meme](https://raw.githubusercontent.com/ForkInABlender/GPT_MEME_Images/main/images/06_26/DALL%C2%B7E%202024-06-26%2016.20.51%20-%20A%20meme%20featuring%20the%20Grim%20Reaper%20(Death)%20standing%20inside%20a%20dimly%20lit%20house%2C%20looking%20nervous%20and%20scared.%20The%20door%20is%20slightly%20ajar%2C%20and%20bright%2C%20cheerfu.webp)
